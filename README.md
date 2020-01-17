@@ -1,0 +1,2 @@
+# Kursinis
+Baigiamasis_darbas
